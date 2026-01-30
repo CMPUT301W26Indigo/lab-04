@@ -1,3 +1,8 @@
 # lab-04
 David
-levi says get off my lawn
+levi says get off my lawn.
+Hilda
+CCID: jigarjee
+Jigar likes tcgs (GOD I LOVE YUGIOH)
+
+Jordan
